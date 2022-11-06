@@ -4,3 +4,6 @@ https://drive.google.com/file/d/15AdqCFyYOc5pVZFYQxZrU6HhLErBr-oA/view?usp=shari
 
 Ссылка на Ответы на вопросы за 18.10.22
 https://docs.google.com/document/d/1gdoKcs53-88r8sDosUxerHZll_NORDmLrQnoTA6rpmo/edit?usp=sharing
+
+Ссылка на сертификат за курс 
+https://drive.google.com/file/d/1Uc8BD6dNEwrm37MKCxBhFscYVDQaTVnx/view?usp=sharing
