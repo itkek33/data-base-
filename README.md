@@ -13,3 +13,4 @@ https://docs.google.com/document/d/1Jo2GFpO4HyFrvK2cPLkOPawvqA67ow4I81fYTrR7ggk/
 
 работа за 11.11.22 АВИАКОМПАНИИ 
 https://drive.google.com/file/d/1G6yPTFeWO1CBNXwQGK15_MCD6j91P9bW/view?usp=share_link
+https://docs.google.com/document/d/1ZysM1dOU9DQl3kji8496X7B7W_MCwiaowAKcn7Z8BeM/edit?usp=share_link
