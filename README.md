@@ -10,3 +10,6 @@ https://drive.google.com/file/d/1Uc8BD6dNEwrm37MKCxBhFscYVDQaTVnx/view?usp=shari
 
 Работа 3.3 за 10.11.22
 https://docs.google.com/document/d/1Jo2GFpO4HyFrvK2cPLkOPawvqA67ow4I81fYTrR7ggk/edit?usp=share_link
+
+работа за 11.11.22 АВИАКОМПАНИИ 
+https://drive.google.com/file/d/1G6yPTFeWO1CBNXwQGK15_MCD6j91P9bW/view?usp=share_link
