@@ -26,3 +26,5 @@ https://docs.google.com/document/d/1ZysM1dOU9DQl3kji8496X7B7W_MCwiaowAKcn7Z8BeM/
 
 Сертификат
 https://drive.google.com/file/d/1RNkwpKnThUDZ0YL1FRGEBnmNIvWDIK5J/view?usp=drivesdk 
+
+Решение линейныных уравнений Островский В https://docs.google.com/spreadsheets/d/1V3t-Au0YjsfdWtLXr2a15Ztn6C0nBva3/edit?usp=sharing&ouid=114987831998259542559&rtpof=true&sd=true
